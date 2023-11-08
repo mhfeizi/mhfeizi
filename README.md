@@ -1,1 +1,1 @@
-### In the name of God, the most gracious, the most merciful
+In the name of God, the most gracious, the most merciful
