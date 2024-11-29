@@ -1,6 +1,6 @@
 In the name of Allah, the most gracious, the most merciful.
 
-Hey 👋 
+Hey there 👋 
 
 👨‍💻 Web Developer
 🤖 Learning AI ...
